@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shokhdevv
 - 👀 I’m interested in Only Coding
-- 📫 How to reach me https://t.me/shokhdevv
+- 📫 How to reach me https://t.me/zay1rvich
 - 😄 Pronouns: Tashkent
 - ⚡ Fun fact: no facts 
 
